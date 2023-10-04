@@ -56,7 +56,11 @@
 </rate>
 </rates>
 </markets> Procamedurgsus
-App.vc/pramed-ASSIAPLI#/cash Room da Procamedurgsus-ASSIAPLI organização não 🚫 governamental https://github.com/ASSIAPLI https://github.com/ASSIAPLI/explore/blob/74ebb9efdde03b6690c8c0210c0ddbb8c0fa7e43/LICENSE.txt
+App.vc/pramed-ASSIAPLI#/cash Room da Procamedurgsus-ASSIAPLI organização não 🚫 governamental https://github.com/ASSIAPLI https://github.com/ASSIAPLI/explore/blob/74ebb9efdde03b6690c8c0210c0ddbb8c0fa7e43/LICENSE.txt 
+
+https://github.com/ASSIAPLI/ansicon/blob/master/.github/workflows/msbuild.ymlhttps:/g.page/pramed-ASSIAPLI999?gm 
+
+https://goo.gle/finance/BNB-USD-C/C++CI
 
 
 
